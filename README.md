@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Lhenny 
 - 👀 I’m interested in change
-- 🌱 I’m currently learning to make use od codes
+- 🌱 I’m currently learning to make use of codes
 - 💞️ I’m looking to collaborate on value delivery
-- 📫 How to reach me telepathy
+- 📫 How to reach me? via telepathy
 - 😄 Pronouns: Mr
 - ⚡ Fun fact: i work and rest equal
 
